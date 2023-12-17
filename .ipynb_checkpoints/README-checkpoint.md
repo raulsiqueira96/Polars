@@ -7,3 +7,5 @@ Canal do Youtube: https://www.youtube.com/@raulsiqueira96
 Linkedin: https://www.linkedin.com/in/raul-siqueira/
 
 Um abraco e nos vemos na próxima :)
+
+teste
